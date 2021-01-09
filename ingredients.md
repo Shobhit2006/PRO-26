@@ -1,0 +1,1 @@
+All kinds of vegetables, salt, pepper and white sauce
